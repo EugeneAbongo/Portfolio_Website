@@ -1,0 +1,2 @@
+# AKAN
+Ghana day names
